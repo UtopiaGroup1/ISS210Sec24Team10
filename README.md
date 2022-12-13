@@ -7,3 +7,4 @@ https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.edweek.org%2Fleadership%2F
 https://search.ebscohost.com/login.aspx?direct=true&db=aci&AN=148272343&site=eds-live&authtype=ip,guest&custid=s8364774&groupid=main&profile=eds
 https://www.nps.gov/goga/learn/nature/climate-change-causes.htm Green House Gases Image
 Image of Climate Change vs Global Warming was created by Paige Greene
+https://www.youtube.com/watch?v=pydJLIM36g4
